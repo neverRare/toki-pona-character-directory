@@ -142,3 +142,11 @@ TODO artist - it's one of the participants of Icon and Banner Contest 2023, I ca
 made by akesi kon Nalasuni
 
 - <https://discord.com/channels/301377942062366741/316066233755631616/775444412552839199>
+
+## jan noka
+
+![](./jan_noka.webp)
+
+made by noka Kaken
+
+- <https://discord.com/channels/301377942062366741/301377942062366741/1247670418417127586>
