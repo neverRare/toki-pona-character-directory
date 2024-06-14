@@ -133,7 +133,9 @@ made by jan Osi
 
 ![](./unnamed_jan_pi_toki_pona.png)
 
-TODO artist - it's one of the participants of Icon and Banner Contest 2023, I can't find them
+made by hay!!#4966
+
+- <https://discord.com/channels/301377942062366741/1204836106865086474/1204845768620642364>
 
 ## wasoweli
 
